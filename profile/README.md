@@ -1,4 +1,4 @@
-## Hi there 👋
+## Community-led projects to support animal shelters, powered by Best Friends Animal Society
 
 <!--
 
